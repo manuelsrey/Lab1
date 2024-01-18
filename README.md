@@ -15,3 +15,5 @@
 7. Araceli @araceligm90
 
 8. David @davidperuiz
+
+9. Sofia Fernandes @sofiafernandsp
