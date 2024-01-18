@@ -3,3 +3,7 @@
 1. Arturo @jarturomora
 2. JuanPabloCeron@JuanJabloJeron
 3. Rubén @rubpri
+
+4. Jorge @JorgeCaraballoVeliz
+
+5. Jesus Martin https://github.com/jesusmartinromero10
