@@ -2,4 +2,6 @@
 
 1. Arturo @jarturomora
 
-2. Jorge @JorgeCaraballoVeliz
+2.JuanPabloCeron@JuanJabloJeron
+
+3. Jorge @JorgeCaraballoVeliz
